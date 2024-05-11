@@ -1,8 +1,10 @@
 Hello...
 
-I'm just a student still trying to learn how to code many things, but I'm working towards making myself better with coding.
+I'm just a student learning how to code, but I'm working towards making myself better.
 
-I'd say I'm non-binary, but they/she pronouns are fine.
+I also run the https://www.youtube.com/@WeatherSeven WeatherSTAR 4000 streams, you can find music used here.
+
+I'd say I'm non-binary, but they/then or she/her pronouns are fine.
 
 
 <!---
