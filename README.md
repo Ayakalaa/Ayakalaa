@@ -4,7 +4,7 @@ I'm just a student learning how to code, but I'm working towards making myself b
 
 I also run the https://www.youtube.com/@WeatherSeven WeatherSTAR 4000 streams, you can find music used here.
 
-I'd say I'm non-binary, but they/then or she/her pronouns are fine.
+I'm non-binary, but they/them or she/her pronouns are fine.
 
 
 <!---
